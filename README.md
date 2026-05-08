@@ -1,1 +1,0 @@
-# idpwbedul124.github.io
